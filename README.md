@@ -1,2 +1,2 @@
 # Bestgames
-This is about the top ranking games that many peoples are playing and it is also inspiring to learn and compete against other players.
+If you love playing video games. This following link are a most views because they are some of the top five games people are playing today.
